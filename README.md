@@ -15,6 +15,9 @@
 
 ![Captura de pantalla 2023-09-04 225020](https://github.com/franciscoMarquezBocanegra/MICROFRAMEWORKS-WEB/assets/98216991/0b17acc0-62d8-41db-9a02-8e1e8fbd8403)
 
+![Captura de pantalla 2023-09-04 234952](https://github.com/franciscoMarquezBocanegra/MICROFRAMEWORKS-WEB/assets/98216991/1bcc96bb-992a-4343-a22a-cddeae731291)
+
+
 ![Captura de pantalla 2023-09-04 234423](https://github.com/franciscoMarquezBocanegra/MICROFRAMEWORKS-WEB/assets/98216991/7c847044-1d31-4451-b079-85433bada814)
 
 ![Captura de pantalla 2023-09-04 225252](https://github.com/franciscoMarquezBocanegra/MICROFRAMEWORKS-WEB/assets/98216991/3e8e90ab-342d-431d-9f8d-1c157d6a9051)
